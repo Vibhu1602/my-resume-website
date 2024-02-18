@@ -1,1 +1,1 @@
-new images added
+new images added for interior
